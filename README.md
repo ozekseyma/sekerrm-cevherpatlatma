@@ -1,0 +1,1 @@
+# sekerrm-cevherpatlatma
